@@ -1,1 +1,1 @@
-yar tum buht axhy ho sachi mein
+# yar tum buht axhy ho sachi mein
