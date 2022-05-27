@@ -1,0 +1,1 @@
+yar tum buht axhy ho sachi mein
